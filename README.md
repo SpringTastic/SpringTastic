@@ -1,13 +1,11 @@
-
- <img width="1000" height="300" alt="fcbec94b717e835d59305ce829e8bd3a" src="https://github.com/user-attachments/assets/e71a8346-a39f-4478-bee9-3f05102d8269" />
-
-
- <img width="190" height="40" alt="qWAlLLU" src="https://github.com/user-attachments/assets/94887091-3f82-48d1-a45e-df6d56a55dac" />
-    <img width="190" height="40" alt="mtHAEL4" src="https://github.com/user-attachments/assets/67b350da-7313-47b6-aee9-30a87fbdb8fe" />
-          <img width="190" height="40" alt="Autistic-Mire-Green" src="https://github.com/user-attachments/assets/d345678b-5a1e-41b3-9ec6-082b57385074" />
+<img width="1000" height="300" alt="fcbec94b717e835d59305ce829e8bd3a" src="https://github.com/user-attachments/assets/e71a8346-a39f-4478-bee9-3f05102d8269" />
 
 
-         ; #  cxh anytime (don't be scared i dont bite hehe)... !! <3 W2i   ( im offtab all the time lalala... )  
+<img width="99" height="57" alt="tumblr_37f10c5f95333b46b2d7455ebd445e30_58f2b106_100" src="https://github.com/user-attachments/assets/29c9d499-266b-4307-bd2f-24a666295a8b" /> 
+
+              
+
+         ; #  cxh anytime don't be scared  ... !! <3 W2i   ( im offtab all the time lalala... )  
              
                      
                      fan of many things... the loud house, dandys world inanimate insanity etc...
@@ -17,6 +15,9 @@
 
                                       
               ( if i follow someone problematic PLEASE tell me by whispering or through my atabook. )
+   
+
+              
          
   <img width="420" height="200" alt="Zpringy ‼️‼️III" src="https://github.com/user-attachments/assets/7cfeb004-95c5-4f4f-ab9e-b6284d4f7e10" />                                                                                                                                                  
   <img width="420" height="200" alt="100aa5ba73d1403c5548384020adf9c1" src="https://github.com/user-attachments/assets/d241d111-cf7c-41ca-b2e0-b1d3c92642e1" />                      
