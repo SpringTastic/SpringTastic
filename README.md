@@ -4,6 +4,7 @@
 
  <img width="190" height="40" alt="qWAlLLU" src="https://github.com/user-attachments/assets/94887091-3f82-48d1-a45e-df6d56a55dac" />
     <img width="190" height="40" alt="mtHAEL4" src="https://github.com/user-attachments/assets/67b350da-7313-47b6-aee9-30a87fbdb8fe" />
+          <img width="190" height="40" alt="Autistic-Mire-Green" src="https://github.com/user-attachments/assets/d345678b-5a1e-41b3-9ec6-082b57385074" />
 
 
          ; #  cxh anytime (don't be scared i dont bite hehe)... !! <3 W2i   ( im offtab all the time lalala... )  
