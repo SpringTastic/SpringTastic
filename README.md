@@ -7,16 +7,16 @@
  
               
 
-                          ; #  cxh anytime don't be scared !! <3 W2i   ( offtab all the time ^_^ )  
+                       ; #  cxh anytime don't be scared !! <3 W2i   ( offtab all the time ^_^ )  
                   
                      
-                          fan of many things... the loud house, dandys world inanimate insanity etc...
+                        fan of many things... the loud house, dandys world inanimate insanity etc...
                        
                  
-                          ( if you have a problem with me talk to me about it like a normal person 🙂. )
+                       ( if you have a problem with me talk to me about it like a normal person 🙂. )
 
                                       
-                      ( if i follow someone problematic PLEASE tell me by whispering or through my atabook. )
+                  ( if i follow someone problematic PLEASE tell me by whispering or through my atabook. )
 
 
 
