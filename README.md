@@ -7,16 +7,16 @@
  
               
 
-                       ; #  cxh anytime don't be scared !! <3 W2i   ( offtab all the time ^_^ )  
+                         ; #  cxh anytime don't be scared !! <3 W2i   ( offtab all the time ^_^ )  
                   
                      
-                        fan of many things... the loud house, dandys world inanimate insanity etc...
+                         fan of many things... the loud house, dandys world inanimate insanity etc...
                        
                  
-                       ( if you have a problem with me talk to me about it like a normal person 🙂. )
+                         ( if you have a problem with me talk to me about it like a normal person 🙂. )
 
                                       
-                  ( if i follow someone problematic PLEASE tell me by whispering or through my atabook. )
+                      ( if i follow someone problematic PLEASE tell me by whispering or through my atabook. )
 
 
 
@@ -24,6 +24,18 @@
   <img width="420" height="200" alt="Zpringy ‼️‼️III" src="https://github.com/user-attachments/assets/7cfeb004-95c5-4f4f-ab9e-b6284d4f7e10" />                                                                                                                                                  
   <img width="420" height="200" alt="100aa5ba73d1403c5548384020adf9c1" src="https://github.com/user-attachments/assets/d241d111-cf7c-41ca-b2e0-b1d3c92642e1" />                      
   
-  #; springy springy springy lalala ...( ◜‿◝ )♡♡ ~~~ i love my springyyy ｡◕‿◕｡ ♡♡ !!
-  <img width="1200" height="81" alt="7" src="https://github.com/user-attachments/assets/1a0ec3f8-8574-4ef7-8557-9e78a2a78dee" />
+                          #; springy springy springy lalala ...( ◜‿◝ )♡♡ ~~~ i love my springyyy ｡◕‿◕｡♡♡ !! 
 
+  <img width="1200" height="81" alt="7" src="https://github.com/user-attachments/assets/1a0ec3f8-8574-4ef7-8557-9e78a2a78dee" />
+  <table align="center"><th>
+  <details><summary> <br>$\text{\small\it\color{#e7c8a0}dni!!}$</summary> 
+   
+  <br> - instigators .
+  <br> - hating on my interests . ( without having an actual reason too ) 
+  <br> - basic criteria
+  <br> - if you refuse my help when venting to me . 
+  <br> - if you force me to talk to you . 
+  <br> - if you tease me while not being my friend . 
+  <br> - darkshippers/proshippers . 
+  
+<img width="49" height="25" alt="fccf9334" src="https://github.com/user-attachments/assets/1af067c0-7c28-46e8-8a01-c942658bf78a" />
