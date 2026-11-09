@@ -11,13 +11,12 @@
                   
                      
                          fan of many things... the loud house, dandys world inanimate insanity etc...
-                       
+                                         see my int and dni at the bottom 
                  
                          ( if you have a problem with me talk to me about it like a normal person 🙂. )
 
                                       
                       ( if i follow someone problematic PLEASE tell me by whispering or through my atabook. )
-
 
 
          
@@ -27,7 +26,11 @@
      #; springy springy springy lalala ...( ◜‿◝ )♡♡ ~~~ i love my springyyy ｡◕‿◕｡♡♡ !! 
 
   <img width="1200" height="81" alt="7" src="https://github.com/user-attachments/assets/1a0ec3f8-8574-4ef7-8557-9e78a2a78dee" />
-  <table align="center"><th>
+  <table align="center"><th> 
+  <details><summary> <br>$\text{\small\it\color{#e7c8a0}int!!}$</summary> 
+  <br> other fans of my interests!! 
+  <br> Fossilberry , brightvision , Flowerhour , ArtisticShow , Joll shippers!!
+  <br> Lauren Bousfield listeners!!
   <details><summary> <br>$\text{\small\it\color{#e7c8a0}dni!!}$</summary> 
    
   <br> - instigators .
@@ -37,5 +40,6 @@
   <br> - if you force me to talk to you . 
   <br> - hurtful teasing . ( playful teasing is ok !! )
   <br> - darkshippers/proshippers . 
+ 
   
 <img width="49" height="25" alt="fccf9334" src="https://github.com/user-attachments/assets/1af067c0-7c28-46e8-8a01-c942658bf78a" />
