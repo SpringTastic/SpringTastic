@@ -11,7 +11,8 @@
                   
                      
                          fan of many things... the loud house, dandys world inanimate insanity etc...
-                                         see my int and dni at the bottom 
+                                     
+                                     ;  see my int and dni at the bottom ..
                  
                          ( if you have a problem with me talk to me about it like a normal person 🙂. )
 
