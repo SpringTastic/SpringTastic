@@ -35,7 +35,7 @@
   <br> - basic criteria
   <br> - if you refuse my help when venting to me . 
   <br> - if you force me to talk to you . 
-  <br> - if you tease me while not being my friend . 
+  <br> - hurtful teasing . ( playful teasing is ok !! )
   <br> - darkshippers/proshippers . 
   
 <img width="49" height="25" alt="fccf9334" src="https://github.com/user-attachments/assets/1af067c0-7c28-46e8-8a01-c942658bf78a" />
