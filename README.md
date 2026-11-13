@@ -32,7 +32,7 @@
   <br> other fans of my interests!! 
   <br> Fossilberry , brightvision , Flowerhour , ArtisticShow , Joll shippers!!
   <br> Lauren Bousfield listeners!!
-  <details><summary> <br>$\text{\small\it\color{#e7c8a0}dni!!}$</summary> 
+
    
  
  
