@@ -28,7 +28,7 @@
 
   <img width="1200" height="81" alt="7" src="https://github.com/user-attachments/assets/1a0ec3f8-8574-4ef7-8557-9e78a2a78dee" />
   <table align="center"><th> 
-  <details><summary> <br>$\text{\small\it\color{#e7c8a0}int!!}$</summary> 
+  <details><summary> <br>$\text{\small\it\color{#F7AFD0FF}int!!}$</summary> 
   <br> other fans of my interests!! 
   <br> Fossilberry , brightvision , Flowerhour , ArtisticShow , Joll shippers!!
   <br> Lauren Bousfield listeners!!
